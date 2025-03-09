@@ -1,0 +1,1 @@
+# Identifying_shopping_trens_AI-ML
